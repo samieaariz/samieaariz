@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @samieaariz
-- 👀 I’m interested in ...
+- 👀 I’m interested in ...business ideas
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...personal blogs 
 - 📫 How to reach me ...+256 771612792
